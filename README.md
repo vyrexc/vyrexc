@@ -1,16 +1,19 @@
 ### Hi there 👋
 
-<!--
-**vyrexc/vyrexc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### INFORMASI PENGEMBANG
 
-Here are some ideas to get you started:
+DEV : Vyex
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+SUPPORT : F7 TEAM
+
+MY TEAM : F7
+
+Contact : vyex15@gmail.com
+
+CUKUP SEKIAN DARI SAYA 🤔
+
+TERIMAH KASIH SUDAH MAMPIR
+
+JANGAN LUPA FOLLOW AKUN SOSIAL SAYA
+
+SALAM DARI MY TEAM F7 🥴
