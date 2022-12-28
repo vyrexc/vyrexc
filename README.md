@@ -2,17 +2,13 @@
 
 ### INFORMASI PENGEMBANG
 
-## DEV : Vyex
+## DEV : Vyrexc
+## FB  : Vyex New 
 
 
 
 
 
-## 
+## be smart bro
 
-
-
-
-
-### KOMTOL
 
